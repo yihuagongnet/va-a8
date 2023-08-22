@@ -1,6 +1,6 @@
-# va-a8  萝莉视频永久网址：
+# va-a8  xtik视频永久网址：
 
-https://a18.gay
+https://xtik.in
 
 ```
 谷歌浏览器、百度浏览器、QQ浏览器，夸克浏览器，有些网址在部分浏览器里面无法打开，
@@ -10,10 +10,22 @@ https://a18.gay
 也可以发邮件索取最新网址:yihuagongnet@gmail.com
 ```
 
-# va-a8  萝莉视频最新网址：
+# va-a8  xtik视频最新网址：
 
-https://luoli.sbs
+https://a81.gay 
 
-https://luoli.space
+https://xtik.quest
 
-https://loibus.life
+https://xtik.shop
+
+https://xtik.lol
+
+https://xtik.pics
+
+https://xtik.homes
+
+https://xtik.hair
+
+https://xtik.skin
+
+https://xtik.xyz
